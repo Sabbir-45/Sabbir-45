@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **C,HTML & CSS**
 
-- 📫 How to reach me **sabbir9011@hmail.com**
+- 📫 How to reach me **sabbir9011@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
